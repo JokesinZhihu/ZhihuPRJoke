@@ -1,6 +1,6 @@
-# 黑 公 关 笑 话 思 潮
+# 知 乎 黑 公 关 笑 话 思 潮
 模仿著名洗地文“李xx事件——一场针对xx的黑公关狂欢事件”改编文章及衍生作品。
-
+### 这 改 变 了 一 切
 
 ## 原文链接：
 https://mp.weixin.qq.com/s?__biz=MzAwOTQxNjgxNw==&mid=2649863137&idx=1&sn=0a3bb0cc0aa8223f421f58b00ef9c50d&chksm=835aeaffb42d63e969e9ac197ec65d76afca828349d6e28f6cff91c6503438bbc101c851367d&mpshare=1&scene=1&srcid=&sharer_sharetime=1575432779747&sharer_shareid=e16a95b12fc315bf60c5e8c1e275fa25#rd
