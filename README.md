@@ -22,4 +22,4 @@ https://mp.weixin.qq.com/s?__biz=MzIxOTIzNjQxNA==&mid=2650310610&idx=1&sn=629024
 
 ### 思 潮 接 纳————岳飞风波亭事件：一场针对秦相爷的黑公关狂欢
 
-https://zhuanlan.zhihu.com/p/95618223（已被定向爆破）
+https://zhuanlan.zhihu.com/p/95618223（已被定向爆破，此处有备份）
